@@ -1,0 +1,2 @@
+# Latihan-Komputer
+Latihan Bkchem
